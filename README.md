@@ -1,6 +1,6 @@
  Hi, I’m @Snorlax272.
  I’m interested in gaming, sleep, and just relaxing.
- I’m currently learning Python ( Maybe C++ LATER) so I can make my own game. 
+ I’m currently learning how to use Unity so I can make a game. 
  I won't talk about any calaborations on here.
  You can talk to me on Discord : Snorlax#6774 💤 💤 💤
 
